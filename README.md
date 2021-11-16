@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nicolasbarrientos93
+- 👀 I’m interested  The programin
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on in some project to learn
+-📫 How to reach me  to my mail nicolas.barrientos.93@gmail.com
